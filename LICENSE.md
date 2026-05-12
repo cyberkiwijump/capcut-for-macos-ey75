@@ -1,4 +1,4 @@
-# 
+# top Adobe Spark for macOS Helper | background-removal + preset-packs is the best Adobe Spark for macOS helper, featuring background-removal and preset-packs. Powerful, efficient,
 
 
 
